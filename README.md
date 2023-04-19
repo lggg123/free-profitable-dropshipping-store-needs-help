@@ -23,3 +23,8 @@ nuzer.de
 
 this doesnt sell but can maybe get you a bunch of views on social media id youre creative
 ### https://pin.it/2SMYiKm
+
+i really like this one
+### https://pin.it/3lAqtj2
+
+but honestly an AI engine would help.
