@@ -12,6 +12,9 @@
 
 nuzer.de
 
+Check out my open checklist to begin your dropshipping store from scratch. Debutify is the theme I am using along with some custome code. I will share the code here 
+and provide step by step instructions on how to clone this theme and use it on your dropshipping store.
+
 ### here is a pinterest ad i think might work
 ### https://pin.it/4CbeFji
 ### https://pin.it/3PuHvWI
